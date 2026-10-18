@@ -1,4 +1,7 @@
----
+oi.  eu.  sou.  o.  André
+tudo.  bem---ai
+joia 💎 
+com.você
 slug: /
 ---
 
